@@ -1,1 +1,0 @@
-# GD105-SpringA1
